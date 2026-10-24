@@ -21,7 +21,7 @@ extra step: i like music so i thought [[char(54)char(73)char(85)char(85)char(81)
 
 
 
-step 7: cool forum i found https://imgur.com/a/Nq7hIR3
+step 7: cool forum i found https://imgur.com/a/good-luck-Nq7hIR3
 ||connected||
 ||connected||
 step 8: lemme get my ---- key
