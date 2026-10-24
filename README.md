@@ -17,10 +17,6 @@ step 5: https://youtube.com/shorts/XzNGszBc5Vo?feature=share-
 step 6: u should not give up -on qexqp x oba eboofkd yqt ili- even though the numbers make up everthing 
 
 
-extra step: i like music so i thought [[char(54)char(73)char(85)char(85)char(81)char(84)char(74)char(78)char(72)char(86)char(83)char(68)char(80)char(78)char(66)char(80)char(48)char(97)char(82)char(85)char(116)char(78]]
-
-
-
 step 7: cool forum i found https://imgur.com/a/Nq7hIR3
 ||connected||
 ||connected||
