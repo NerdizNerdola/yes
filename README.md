@@ -33,9 +33,9 @@ step 9: tocrl
 7th and 8th both counts as the 9th word if it's right
 
 
-step 10: bro i ate a salad while playing some new GRACEful gamemodes at the age of (³√+ __sin²_(45°)+cos²_(45)°_) x (∫₀¹2x dx)_+__10²_-8²_-12 - 1
-                                                                                            (ln(e)                                    3
+step 10: bro i ate while playing some new GRACEful gamemodes at the age of (³√+ __sin²_(45°)+cos²_(45)°_) x (∫₀¹2x dx)_+__10²_-8²_-12 - 1 + 43
 
+                                                                                            (ln(e)                                    3
 
 
 
